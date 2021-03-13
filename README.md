@@ -1,2 +1,0 @@
-# project_1vsa
-# CVICENIE 2 Z PREDMETU VSA
